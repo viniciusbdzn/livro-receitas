@@ -1,4 +1,4 @@
-# Fricasse de Frango :
+# Fricassê de Frango 
 
 ### Ingredientes
 
