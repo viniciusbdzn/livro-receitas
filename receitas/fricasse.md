@@ -1,5 +1,4 @@
-# Fricasse de Frango :chi
-**Negrito** _italico_
+# Fricasse de Frango :
 
 ### Ingredientes
 
